@@ -1,2 +1,2 @@
 # JPMC-Quantitative-Research-
-Virtual Job Simulation Experience on Forage
+Virtual (Internship) Job Simulation Experience on Forage - JP Morgan Chase & Co.
